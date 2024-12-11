@@ -15,4 +15,4 @@ Is my second favorite because it brought out the attention to make a sandwhich, 
 
 *Lab 7, part 1 
 
-Is my third favorite because it had the used of coding the days of the week and the time when being able to park in a parking spot. I found the coding to be easier because with the read me it was easy to understand the steps of what day goes with time. Also this lab gave us picture to go base off which help out a lot.
+Is my third favorite because it had the used of coding the days of the week and the time when being able to park in a parking spot. I found the coding to be easier because with the read me it was easy to understand the steps of what day goes with time. Also this lab gave us picture to go base off which help out so much.
